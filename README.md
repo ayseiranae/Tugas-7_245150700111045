@@ -1,2 +1,2 @@
 # Tugas-7_245150700111045
-sabar ya bang, vidnya masih upload lama bet wi-finya sumpah
+Link Video: https://drive.google.com/file/d/1hj1XFy5ePskV2HwHND833Jzi3UW3rQCq/view?usp=sharing
